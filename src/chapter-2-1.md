@@ -1,5 +1,4 @@
-Chapter 2: Understanding Self-Forgiveness: Definition of Self-Forgiveness
-=========================================================================
+# Definition of Self-Forgiveness
 
 Self-forgiveness is a process that allows us to let go of regrets and guilt associated with past mistakes and move towards healing, personal growth, and happiness. In this chapter, we will define self-forgiveness.
 

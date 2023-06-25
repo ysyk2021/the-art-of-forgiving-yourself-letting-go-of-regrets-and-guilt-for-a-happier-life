@@ -1,5 +1,4 @@
-Chapter 8: Self-Forgiveness and Relationships: Discussion of How to Communicate About Self-Forgiveness with Others
-==================================================================================================================
+# Discussion of How to Communicate About Self-Forgiveness with Others
 
 Self-forgiveness can have a significant impact on our relationships with others. In this chapter, we will discuss how to communicate about self-forgiveness with others.
 

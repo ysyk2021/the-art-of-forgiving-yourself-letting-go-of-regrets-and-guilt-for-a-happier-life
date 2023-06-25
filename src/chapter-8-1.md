@@ -1,5 +1,4 @@
-Chapter 8: Self-Forgiveness and Relationships: Explanation of How Self-Forgiveness Can Impact Relationships
-===========================================================================================================
+# Explanation of How Self-Forgiveness Can Impact Relationships
 
 Self-forgiveness can have a significant impact on our relationships with others. In this chapter, we will discuss how self-forgiveness can impact relationships in positive ways.
 

@@ -1,5 +1,4 @@
-Chapter 5: Developing Self-Compassion: Discussion of How to Cultivate Self-Compassion
-=====================================================================================
+# Discussion of How to Cultivate Self-Compassion
 
 Self-compassion is a crucial component of self-forgiveness. It involves treating ourselves with kindness, understanding, and acceptance, just as we would treat a friend who has made a mistake. In this chapter, we will discuss how to cultivate self-compassion.
 

@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Barriers to Self-Forgiveness: Explanation of Common Barriers to Self-Forgiveness
-======================================================================================================
+# Explanation of Common Barriers to Self-Forgiveness
 
 Self-forgiveness is a challenging process that can be hindered by various barriers. These barriers can prevent us from fully embracing self-forgiveness and moving towards healing, personal growth, and happiness. In this chapter, we will explain some common barriers to self-forgiveness.
 

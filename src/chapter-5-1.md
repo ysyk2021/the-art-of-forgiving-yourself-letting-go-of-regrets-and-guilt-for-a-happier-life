@@ -1,5 +1,4 @@
-Chapter 5: Developing Self-Compassion: Explanation of Self-Compassion and Its Role in Self-Forgiveness
-======================================================================================================
+# Explanation of Self-Compassion and Its Role in Self-Forgiveness
 
 Self-compassion is a crucial component of self-forgiveness. It involves treating ourselves with kindness, understanding, and acceptance, just as we would treat a friend who has made a mistake. In this chapter, we will explain what self-compassion is and its role in self-forgiveness.
 

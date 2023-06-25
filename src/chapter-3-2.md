@@ -1,5 +1,4 @@
-Chapter 3: Identifying Regrets and Guilt: Discussion of the Causes and Consequences of Regrets and Guilt
-========================================================================================================
+# Discussion of the Causes and Consequences of Regrets and Guilt
 
 Regrets and guilt are common emotions that can have a significant impact on our well-being. In this chapter, we will discuss the causes and consequences of regrets and guilt and how to identify them.
 

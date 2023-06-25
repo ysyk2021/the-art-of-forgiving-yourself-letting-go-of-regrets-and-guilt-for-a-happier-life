@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Resources for Further Exploration
-=========================================================
+# Resources for Further Exploration
 
 Thank you for reading "The Art of Forgiving Yourself: Letting Go of Regrets and Guilt for a Happier Life". In this final chapter, we will provide some resources for further exploration.
 

@@ -1,5 +1,4 @@
-Chapter 7: The Role of Mindfulness in Self-Forgiveness: Explanation of How Mindfulness Can Support Self-Forgiveness
-===================================================================================================================
+# Explanation of How Mindfulness Can Support Self-Forgiveness
 
 Mindfulness is the practice of being present and fully engaged in the current moment. It can be a powerful tool for supporting self-forgiveness. In this chapter, we will explain how mindfulness can support self-forgiveness.
 

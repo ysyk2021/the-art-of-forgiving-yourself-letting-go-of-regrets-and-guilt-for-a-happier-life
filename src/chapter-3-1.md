@@ -1,5 +1,4 @@
-Chapter 3: Identifying Regrets and Guilt: Explanation of How to Identify Regrets and Guilt
-==========================================================================================
+# Explanation of How to Identify Regrets and Guilt
 
 Regrets and guilt are common emotions that can have a significant impact on our well-being. In this chapter, we will explain how to identify regrets and guilt.
 

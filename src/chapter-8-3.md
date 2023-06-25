@@ -1,5 +1,4 @@
-Chapter 8: Self-Forgiveness and Relationships: Strategies for Using Self-Forgiveness to Improve Relationships
-=============================================================================================================
+# Strategies for Using Self-Forgiveness to Improve Relationships
 
 In this chapter, we will discuss how self-forgiveness can impact our relationships and strategies for using self-forgiveness to improve them. We'll explore how letting go of regrets and guilt can help us cultivate deeper connections with those around us and promote greater inner peace and happiness.
 
