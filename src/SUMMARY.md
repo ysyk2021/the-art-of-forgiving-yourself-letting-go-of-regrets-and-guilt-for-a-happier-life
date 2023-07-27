@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Explanation of the importance of self-forgiveness](chapter-1-1.md)
-  - [Overview of the book's purpose and structure](chapter-1-2.md)
 - [Chapter 2: Understanding Self-Forgiveness](chapter-2.md)
   - [Definition of self-forgiveness](chapter-2-1.md)
   - [Discussion of the benefits of self-forgiveness](chapter-2-2.md)
