@@ -53,4 +53,4 @@ Self-forgiveness enhances our capacity for compassion towards others. As we lear
 
 Ultimately, self-forgiveness paves the way for a happier and more fulfilling life. When we release the weight of regrets and guilt, we open ourselves up to joy, gratitude, and a greater sense of purpose. Self-forgiveness enables us to make choices aligned with our values, build meaningful relationships, and appreciate the beauty of each present moment.
 
-By embracing self-forgiveness, we unlock these remarkable benefits, transforming not only our relationship with ourselves but also our interactions with others and our experience of life as a whole. In the following chapters, we will explore practical techniques and strategies to cultivate self-forgiveness, empowering you to let go of regrets and guilt and embrace a happier, more fulfilling life.
+By embracing self-forgiveness, we unlock these remarkable benefits, transforming not only our relationship with ourselves but also our interactions with others and our experience of life as a whole.

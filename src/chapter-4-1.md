@@ -51,4 +51,4 @@ Self-forgiveness is a transformative journey that requires patience and persiste
 **Conclusion**
 --------------
 
-The process of self-forgiveness involves cultivating self-compassion, taking responsibility, examining mistakes, practicing acceptance, reframing negative self-narratives, nurturing self-love, seeking support, and embracing growth. Through these practices, we can release the burdens of regrets and guilt, find inner peace and happiness, and create a life filled with self-forgiveness and self-acceptance. In the following chapters, we will delve deeper into practical exercises and strategies for implementing self-forgiveness in our daily lives.
+The process of self-forgiveness involves cultivating self-compassion, taking responsibility, examining mistakes, practicing acceptance, reframing negative self-narratives, nurturing self-love, seeking support, and embracing growth. Through these practices, we can release the burdens of regrets and guilt, find inner peace and happiness, and create a life filled with self-forgiveness and self-acceptance.
