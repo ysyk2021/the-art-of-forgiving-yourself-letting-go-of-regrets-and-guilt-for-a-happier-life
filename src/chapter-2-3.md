@@ -52,5 +52,3 @@ Self-forgiveness often requires vulnerability---opening ourselves up to our own 
 -----------------------------------------
 
 Attachment to negative self-identity and labels can be an obstacle in self-forgiveness. We may define ourselves solely based on our past mistakes, making it difficult to separate our actions from our worth as individuals. Recognizing that our mistakes do not define us is crucial in the journey towards self-forgiveness.
-
-By acknowledging these obstacles, we gain insight into the challenges that can arise on the path to self-forgiveness. In the subsequent chapters, we will explore practical techniques and strategies to overcome these obstacles, enabling us to embrace forgiveness, release regrets and guilt, and create a happier, more fulfilling life.
