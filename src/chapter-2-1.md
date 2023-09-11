@@ -1,5 +1,3 @@
-Definition of Self-Forgiveness
-=========================================
 
 In this chapter, we will explore and define the concept of self-forgiveness. Understanding what self-forgiveness truly means lays the foundation for the journey towards letting go of regrets and guilt, and ultimately, attaining a happier life.
 

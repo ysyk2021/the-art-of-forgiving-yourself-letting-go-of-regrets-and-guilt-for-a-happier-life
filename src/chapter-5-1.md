@@ -1,5 +1,3 @@
-Explanation of Self-Compassion and Its Role in Self-Forgiveness
-==========================================================================
 
 In this chapter, we delve into the concept of self-compassion and explore its crucial role in the process of self-forgiveness. We will examine how self-compassion differs from self-esteem, its core components, and practical strategies for cultivating self-compassion to facilitate the journey of letting go of regrets and guilt for a happier life.
 

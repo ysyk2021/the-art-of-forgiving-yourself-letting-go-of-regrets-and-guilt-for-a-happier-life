@@ -1,5 +1,3 @@
-Strategies for Recognizing and Acknowledging Feelings of Regret and Guilt
-====================================================================================
 
 In this chapter, we will explore effective strategies for recognizing and acknowledging feelings of regret and guilt. By developing awareness around these emotions, we can begin the process of self-forgiveness and embark on a journey towards a happier life.
 

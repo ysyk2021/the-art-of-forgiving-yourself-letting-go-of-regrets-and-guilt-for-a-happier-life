@@ -1,5 +1,3 @@
-Strategies for Using Self-Compassion to Enhance Self-Forgiveness
-===========================================================================
 
 In this chapter, we will explore powerful strategies and practices for using self-compassion to enhance our journey of self-forgiveness. By cultivating self-compassion, we can cultivate a deeper understanding, acceptance, and forgiveness towards ourselves.
 

@@ -1,5 +1,3 @@
-Chapter 4: The Process of Self-Forgiveness
-==========================================
 
 Self-forgiveness is a process that involves acknowledging past mistakes and releasing oneself from the burden of guilt and shame. In this chapter, we will explore the steps involved in self-forgiveness and provide strategies for practicing forgiveness towards oneself.
 

@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Barriers to Self-Forgiveness
-==================================================
 
 Self-forgiveness can be a challenging process, as there are often barriers that prevent individuals from fully embracing self-compassion and letting go of past mistakes. In this chapter, we will explore common barriers to self-forgiveness and provide strategies for overcoming them.
 

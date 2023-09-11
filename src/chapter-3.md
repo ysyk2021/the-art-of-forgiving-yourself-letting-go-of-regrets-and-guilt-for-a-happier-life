@@ -1,5 +1,3 @@
-Chapter 3: Identifying Regrets and Guilt
-========================================
 
 Regrets and guilt can be powerful emotions that weigh heavily on the mind and heart, preventing us from moving forward and experiencing happiness in our lives. In this chapter, we will explore strategies for identifying and acknowledging these feelings, as well as their causes and consequences.
 

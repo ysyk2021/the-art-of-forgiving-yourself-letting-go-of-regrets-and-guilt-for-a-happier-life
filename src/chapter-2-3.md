@@ -1,5 +1,3 @@
-Overview of the Obstacles to Self-Forgiveness
-========================================================
 
 In this chapter, we will explore the common obstacles that one may encounter on the journey towards self-forgiveness. Understanding these obstacles can help us navigate the challenges and develop strategies to overcome them, ultimately achieving the freedom and peace that self-forgiveness offers.
 

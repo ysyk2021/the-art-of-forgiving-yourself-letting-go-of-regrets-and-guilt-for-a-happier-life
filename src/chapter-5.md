@@ -1,5 +1,3 @@
-Chapter 5: Developing Self-Compassion
-=====================================
 
 Self-compassion is a key component of self-forgiveness, as it involves treating oneself with kindness and understanding, even in the face of mistakes or failures. In this chapter, we will explore the role of self-compassion in self-forgiveness and provide strategies for cultivating greater self-compassion.
 

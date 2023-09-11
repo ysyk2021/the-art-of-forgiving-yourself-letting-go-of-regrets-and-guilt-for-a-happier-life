@@ -1,5 +1,3 @@
-Explanation of How to Identify Regrets and Guilt
-===========================================================
 
 In this chapter, we will explore the process of identifying regrets and guilt. Understanding the nature of these emotions is a crucial step towards self-forgiveness. By becoming aware of and acknowledging our regrets and guilt, we can begin to navigate the path towards letting go and finding inner peace.
 

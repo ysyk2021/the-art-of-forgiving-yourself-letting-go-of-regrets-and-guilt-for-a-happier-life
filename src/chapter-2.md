@@ -1,5 +1,3 @@
-Chapter 2: Understanding Self-Forgiveness
-=========================================
 
 Self-forgiveness is a critical component of healing and moving forward from past mistakes and regrets. In this chapter, we will explore the definition, benefits, and obstacles to self-forgiveness.
 

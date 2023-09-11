@@ -1,5 +1,3 @@
-Discussion of How to Cultivate Self-Compassion
-=========================================================
 
 In this chapter, we explore the importance of cultivating self-compassion as a crucial step towards forgiving ourselves and creating a happier, more fulfilling life. We delve into practical strategies and exercises that can help nurture a deep sense of self-compassion.
 

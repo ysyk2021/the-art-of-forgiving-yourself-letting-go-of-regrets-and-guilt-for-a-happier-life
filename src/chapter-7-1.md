@@ -1,5 +1,3 @@
-Explanation of How Mindfulness Can Support Self-Forgiveness
-======================================================================
 
 In this chapter, we delve into the profound connection between mindfulness and self-forgiveness. Mindfulness, when practiced with intention and compassion, can be a powerful tool in helping us navigate the path towards forgiving ourselves and finding inner peace.
 

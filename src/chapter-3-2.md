@@ -1,5 +1,3 @@
-Discussion of the Causes and Consequences of Regrets and Guilt
-=========================================================================
 
 In this chapter, we delve into the causes and consequences of regrets and guilt. By understanding the roots of these emotions, we can gain insight into their impact on our lives and lay the groundwork for forgiveness and healing.
 
